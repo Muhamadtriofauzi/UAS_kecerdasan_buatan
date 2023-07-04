@@ -1,0 +1,1 @@
+# UAS_kecerdasan_buatan
